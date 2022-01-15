@@ -11,7 +11,7 @@ BANANAS🍌🍌 AND BREAD🍞🍞🍞!!!!!!!!!!!!
 DESTORY SOCIALISM AND FACISM!!!!!
 don't eat more chicken--that gives you bone disease
 ----EAT MORE BANANAS
-Drooling? don't order a burger-that gives you death
+Drooling? don't order a burger-that kills you
 ----ORDER SOME BREAD
 
 Don't go on a fruit diet---its bad for your nutrition
@@ -20,11 +20,12 @@ There really popular and just find them at your local walmart!(obviously)
 🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗
 Just eat more bananas and get healthier
 
-Also; this stuff is also some the best in the world
-🥖♻️🥦🌲🥖♻️🥦🌲
-🥖♻️🥦🌲🥖♻️🥦🌲
-🥖♻️🥦🌲🥖♻️🥦🌲It has bread-thats why
-So campaign for bananas and bread!!!!
+Anything that has bananas or bread is something good.
+ For every slice of bread you eat-your supporting the not-
+ communist revolution. 🥪 🥪 🥪 🥪 🥪
+For every banana you eat-your supporting the not-communist
+revolution. Thank you for your support 🥪 🥪 🥪 🥪 🥪 🥪
+
 One medium-sized banana packs a whopping 
 400 milligrams of potassium— nearly 10 percent of our recommended daily value!
 Bananas are one of the healthiest fruits in the world because they are packed 
