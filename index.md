@@ -2,7 +2,7 @@ Hello
 BANANAS AND BREAD!!!!!!!!!!!!!!
 The best way to get starving people to join your communist
 revolution
-There's  one better way to do it.
+There's one better way to do it.
 
 And that's NO way
 So why don't ->YOU<- join it?
@@ -12,8 +12,18 @@ DESTORY SOCIALISM AND FACISM!!!!!
 don't eat more chicken--that gives you bone disease
 ----EAT MORE BANANAS
 Drooling? don't order a burger-that gives you death
-----EAT SOME BREAD
+----ORDER SOME BREAD
 
+Don't go on a fruit diet---its bad for your nutrition
+---go on a BANANA AND BREAD DIET!!!!
+There really popular and just find them at your local walmart!(obviously)
+🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗🤗
+Just eat more bananas and get healthier
+
+Also; this stuff is also some the best in the world
+🥖♻️🥦🌲🥖♻️🥦🌲
+🥖♻️🥦🌲🥖♻️🥦🌲
+🥖♻️🥦🌲🥖♻️🥦🌲It has bread-thats why
 So campaign for bananas and bread!!!!
 One medium-sized banana packs a whopping 
 400 milligrams of potassium— nearly 10 percent of our recommended daily value!
