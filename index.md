@@ -1,3 +1,8 @@
+
+[Detail](/second.html)
+
+
+
 Hello
 BANANAS AND BREAD!!!!!!!!!!!!!!
 The best way to get starving people to join your communist
@@ -62,5 +67,4 @@ to prevent neural tube defects such as spina bifida.🍞 🍞 🍞 🍞 🍞
  🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 🍞 
 I mean.......it's kind of a joke
 
-[Detail](/second.html)
 
