@@ -4,7 +4,7 @@
 
 
 
-[NOT CLICKBAIT](file:///Users/alex/Downloads/click.nl.html)
+[NOT CLICKBAIT](/click.nl.html)
 
 The FitnessGram™ Pacer Test is a 
 multistage mental deppresion test 
