@@ -1,3 +1,5 @@
+**Operation Bagration** 
+  
   The Bagration Operation was a Soviet code name for a multifront strategic 
 offensive operation named after sarist general Pyotr Bagration, who had been 
 killed at Borodino, fighting Napoleon’s invasion of 1812 in the war of the sixth coalition. 
@@ -32,5 +34,16 @@ enabled the next operation, the Vistula–Oder Offensive, to come within
 sight of the German capital. The Soviets were initially surprised at the success of the 
 Byelorussian operation which had nearly reached Warsaw. The Soviet advance encouraged the Warsaw 
 uprising against the German occupation forces.
+
+Sources: https://www.encyclopedia.com/history/encyclopedias-almanacs-transcripts-and-maps/bagration-operation
+
+https://the-past.com/feature/operation-bagration/
+
+https://historyofyesterday.com/how-soviet-operation-bagration-brought-the-german-amry-to-its-knees-92d847463e5b
+
+https://en.wikipedia.org/wiki/Operation_Bagration
+
+Thanks :D
+
 
 
