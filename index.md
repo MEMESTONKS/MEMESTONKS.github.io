@@ -35,13 +35,13 @@ sight of the German capital. The Soviets were initially surprised at the success
 Byelorussian operation which had nearly reached Warsaw. The Soviet advance encouraged the Warsaw 
 uprising against the German occupation forces.
 
-Sources: https://www.encyclopedia.com/history/encyclopedias-almanacs-transcripts-and-maps/bagration-operation
+Sources: [](https://www.encyclopedia.com/history/encyclopedias-almanacs-transcripts-and-maps/bagration-operation)
 
-https://the-past.com/feature/operation-bagration/
+[](https://the-past.com/feature/operation-bagration/)
 
-https://historyofyesterday.com/how-soviet-operation-bagration-brought-the-german-amry-to-its-knees-92d847463e5b
+[](https://historyofyesterday.com/how-soviet-operation-bagration-brought-the-german-amry-to-its-knees-92d847463e5b)
 
-https://en.wikipedia.org/wiki/Operation_Bagration
+[](https://en.wikipedia.org/wiki/Operation_Bagration)
 
 Thanks :D
 
