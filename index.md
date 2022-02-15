@@ -1,28 +1,36 @@
+  The Bagration Operation was a Soviet code name for a multifront strategic 
+offensive operation named after sarist general Pyotr Bagration, who had been 
+killed at Borodino, fighting Napoleon’s invasion of 1812 in the war of the sixth coalition. 
+(23 June–29 August 1944) during World War II on the eastern front that 
+shattered the German Army Group Center.
 
-[Reload Page](/click.nl.html)
+Despite the recent Allied landing at Normandy, the German army had over 
+235 divisions in the East, in comparison with a meager 85 in the West.
+With Leningrad relieved in January 1944, and with nearly half of Ukraine now taken, 
+the Soviets planned several offensive operations that was to ripple across the 
+eastern front from north to south.
 
-If first reload button does not work, try this
-[Reload Page](/nothing.nl.html)
+The chosen option for this offensive was an attack 
+in Belorussia against Germany’s Army Group Centre, which 
+was holding the ‘Belorussian Balcony’ – a salient jutting
+eastwards into Soviet territory. Success here would carry the Red Army 
+into Poland and, in the future, open a direct road to Berlin.
 
-   The FitnessGram™ Pacer Test is a 
-multistage mental deppresion test 
-that progressively gets more difficult 
-as it continues.
+By June 1944, Germany had lost 3.3 million men, and the 
+Wehrmacht was understrength by an estimated 20%. Of the 1 million men 
+lost in the winter fighting in Russia, only 100,000 had been replaced. Experienced 
+units could outmatch the Red Army, but there were far too few of them.
 
-The Carbon Monoxide/Chlorine(and/or Phosgene) 
-exposure pacer test will begin 
-in 30 seconds. 
+The operation would last about 2 months, from the June 22 to the August 19, 1944. 
+The plan was to simultaneously batter the German major defenses at six points 
+along the front line with the use of four million Soviet troops, 62,000 artillery 
+guns, 7,500 tanks, and 7,100 aircraft.
 
-Line up at the start.
-The running speed starts slowly, but gets faster 
-each minute after you hear the gunshot.
-A single lap should be completed each time you 
-hear this sound.
-Remember to run die in a straight line, and run as 
-long as possible.
+Operation Bagration allowed the Soviet Union to recapture Byelorussia and 
+Ukraine within its 1941 borders, advance into German East Prussia. The campaign 
+enabled the next operation, the Vistula–Oder Offensive, to come within 
+sight of the German capital. The Soviets were initially surprised at the success of the 
+Byelorussian operation which had nearly reached Warsaw. The Soviet advance encouraged the Warsaw 
+uprising against the German occupation forces.
 
-The second time you fail to complete a lap 
-before the sound, your life is over.
-The test will begin on the word start.
-On your mark, get ready, DIE.
 
