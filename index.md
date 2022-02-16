@@ -35,6 +35,13 @@ sight of the German capital. The Soviets were initially surprised at the success
 Byelorussian operation which had nearly reached Warsaw. The Soviet advance encouraged the Warsaw 
 uprising against the German occupation forces.
 
+Operation Bagration was a huge success for Soveit Forces. Even if the Germans had repulsed the
+attack, it would only drag the war on for a while; and the next Soviet advance would shatter their
+forces easily. All a successful defense would do is slow down the Soviet advance. The Russians had
+much more producing power, and could easily replinish any T-34s T-55s or infantry lost.
+
+**My Soundcloud**
+
 Sources: [somewhere](https://www.encyclopedia.com/history/encyclopedias-almanacs-transcripts-and-maps/bagration-operation)
 
 [something](https://the-past.com/feature/operation-bagration/)
