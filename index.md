@@ -40,12 +40,7 @@ attack, it would only drag the war on for a while; and the next Soviet advance w
 forces easily. All a successful defense would do is slow down the Soviet advance. The Russians had
 much more producing power, and could easily replinish any T-34s T-55s or infantry lost.
 
-let likeButton = document.querySelector('button[title="like"]');
-    if (likeButton != null) {
-        likeButton.click();
-        console.log(likeButton);
-        console.log("clicked on like button");
-    }
+
 
 Sources: [somewhere](https://www.encyclopedia.com/history/encyclopedias-almanacs-transcripts-and-maps/bagration-operation)
 
