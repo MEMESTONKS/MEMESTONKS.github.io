@@ -1,5 +1,4 @@
 **Siege of Stalingrad**
-[Operation Bagration](/operation_bagration.html) 
 
 Stretching about 30 miles (50 km) along the banks of the Volga River, 
 Stalingrad was a large industrial city producing armaments and tractors and was 
@@ -47,6 +46,7 @@ Friedrich Paulus surrendered 91,000 German troops under his command on January 3
 From now on, Stalin and his Red Army would
 be largely on the offensive; capturing Berlin in 1945. It was the first defeat to be publicly
 acknowleged by Hitler and the turning point of World War II on the european front.
+Another article: [Operation Bagration](/operation_bagration.html) 
 
 Sources: [Some random website](https://www.britannica.com/event/Battle-of-Stalingrad)
 
