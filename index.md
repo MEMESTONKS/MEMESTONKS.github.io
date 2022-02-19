@@ -54,7 +54,7 @@ Sources: [Some random website](https://www.britannica.com/event/Battle-of-Stalin
 
 [all American biased things](https://www.history.com/topics/world-war-ii/battle-of-stalingrad)
 
-[My teacher hates this](https://en.wikipedia.org/wiki/Operation_Uranus#:~:text=Operation%20Uranus%20(Russian%3A%20%D0%9E%D0%BF%D0%B5%D1%80%D0%B0%CC%81%D1%86%D0%B8%D1%8F%20%C2%AB,Army%2C%20the%20Third%20and%20Fourth)
+[My teacher hates this](https://en.wikipedia.org/wiki/Operation_Uranus)
 
 [Wikipedia but cheap](https://www.newworldencyclopedia.org/entry/Battle_of_Stalingrad)
 
