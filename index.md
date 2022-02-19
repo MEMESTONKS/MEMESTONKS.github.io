@@ -1,4 +1,5 @@
 **Siege of Stalingrad**
+[Operation Bagration](/operation_bagration.html) 
 
 Stretching about 30 miles (50 km) along the banks of the Volga River, 
 Stalingrad was a large industrial city producing armaments and tractors and was 
