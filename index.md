@@ -1,56 +1,60 @@
-**Operation Bagration** 
-  
-  The Bagration Operation was a Soviet code name for a multifront strategic 
-offensive operation named after sarist general Pyotr Bagration, who had been 
-killed at Borodino, fighting Napoleon’s invasion of 1812 in the war of the sixth coalition. 
-(23 June–29 August 1944) during World War II on the eastern front that 
-shattered the German Army Group Center.
+**Siege of Stalingrad**
 
-Despite the recent Allied landing at Normandy, the German army had over 
-235 divisions in the East, in comparison with a meager 85 in the West.
-With Leningrad relieved in January 1944, and with nearly half of Ukraine now taken, 
-the Soviets planned several offensive operations that was to ripple across the 
-eastern front from north to south.
+Stretching about 30 miles (50 km) along the banks of the Volga River, 
+Stalingrad was a large industrial city producing armaments and tractors and was 
+an important prize in itself for the invading German army. The city 
+would also serve
+as a important prize for Hitler, encouraging morale in Germany by capturing 
+the only city by the famous dictator's name.
 
-The chosen option for this offensive was an attack 
-in Belorussia against Germany’s Army Group Centre, which 
-was holding the ‘Belorussian Balcony’ – a salient jutting
-eastwards into Soviet territory. Success here would carry the Red Army 
-into Poland and, in the future, open a direct road to Berlin.
+Hitler wanted to destroy Soviet forces in the south, take control
+of the region's resources, then he would mobolize his army to take Moscow or
+conquer what was left of Caucasas. The offensive would be 
+undertaken by Army Group South under Field Marshal Fedor von Bock. 
 
-By June 1944, Germany had lost 3.3 million men, and the 
-Wehrmacht was understrength by an estimated 20%. Of the 1 million men 
-lost in the winter fighting in Russia, only 100,000 had been replaced. Experienced 
-units could outmatch the Red Army, but there were far too few of them.
+After a few days of launching its attack, Germany’s air 
+force had rendered the Volga River impassable to shipping and had sunk several 
+Russian commercial vessels in the process. From late August through the end 
+of the assault, the Luftwaffe conducted dozens of air strikes on the city.
 
-The operation would last about 2 months, from the June 22 to the August 19, 1944. 
-The plan was to simultaneously batter the German major defenses at six points 
-along the front line with the use of four million Soviet troops, 62,000 artillery 
-guns, 7,500 tanks, and 7,100 aircraft.
+Stalin instructed his forces in the city to ruthlessly hold their ground, 
+famously decreeing in Order No. 227: “Not a step back!” Those who surrendered would 
+fac possible execution. Outnumbered and without air cover, the 62nd and 64th 
+Soviet Armies suffered huge casualties in the first week of fighting.
+By November, the German High Command had committed 1.2 million men to the southern
+front.
 
-Operation Bagration allowed the Soviet Union to recapture Byelorussia and 
-Ukraine within its 1941 borders, advance into German East Prussia. The campaign 
-enabled the next operation, the Vistula–Oder Offensive, to come within 
-sight of the German capital. The Soviets were initially surprised at the success of the 
-Byelorussian operation which had nearly reached Warsaw. The Soviet advance encouraged the Warsaw 
-uprising against the German occupation forces.
+As the fighting reached its most brutal times, Gen. Alexander Vasilevsky 
+and Gen. Georgy Zhukov came up with a proposed massive double encirclement 
+of the entire 
+German Sixth Army. Stalin approved their plan – Operation Uranus – on November 13.
+on November 19-23 1942, Soviet forces on the northern flank of 
+the Axis forces at Stalingrad began their attack. 
+ 
+The Germans were streched too thin in the effort of capturing the city, and they relied on Romanian 
+forces to protect their flanks from Soviet attacks. Although Romanian units 
+succeeded in repelling the first Soviet attacks, 
+by the end of 20 November the Third and Fourth Romanian armies were in 
+headlong retreat, as the Red Army bypassed several German infantry divisions.
 
-Operation Bagration was a huge success for Soveit Forces. Even if the Germans had repulsed the
-attack, it would only drag the war on for a while; and the next Soviet advance would shatter their
-forces easily. All a successful defense would do is slow down the Soviet advance. The Russians had
-much more producing power, and could easily replinish any T-34s T-55s or infantry lost.
+The Soviets had their troops surround 300,000 German troops of the 4th and 6th 
+armies within 4 days. Instead of ordering German troops to plan a breakthrough,
+Hitler demanded that supplies be carried in by air. Heavy Soviet 
+anti-aircraft fire and fighter interceptions led to the loss of over 490 German transport aircraft.
 
+Friedrich Paulus surrendered 91,000 German troops under his command on January 31, 1943.
+From now on, Stalin and his Red Army would
+be largely on the offensive; capturing Berlin in 1945. It was the first defeat to be publicly
+acknowleged by Hitler and the turning point of World War II on the european front.
 
+Sources: [Some random website](https://www.britannica.com/event/Battle-of-Stalingrad)
 
-Sources: [somewhere](https://www.encyclopedia.com/history/encyclopedias-almanacs-transcripts-and-maps/bagration-operation)
+[The middle of nowhere](https://warontherocks.com/2017/08/the-motherland-calls-the-battle-of-stalingrad-75-years-later/)
 
-[something](https://the-past.com/feature/operation-bagration/)
+[all American biased things](https://www.history.com/topics/world-war-ii/battle-of-stalingrad)
 
-[a website...i guess](https://historyofyesterday.com/how-soviet-operation-bagration-brought-the-german-amry-to-its-knees-92d847463e5b)
+[My teacher hates this](https://en.wikipedia.org/wiki/Operation_Uranus#:~:text=Operation%20Uranus%20(Russian%3A%20%D0%9E%D0%BF%D0%B5%D1%80%D0%B0%CC%81%D1%86%D0%B8%D1%8F%20%C2%AB,Army%2C%20the%20Third%20and%20Fourth)
 
-[somewhat a website](https://en.wikipedia.org/wiki/Operation_Bagration)
+[Wikipedia but cheap](https://www.newworldencyclopedia.org/entry/Battle_of_Stalingrad)
 
 Thanks :D
-
-
-
