@@ -23,6 +23,8 @@ stuff like that.
 
 [Operation Bagration](/operation_bagration.html)
 
+[The Great Leap Forward](/the_leap_forward.html)
+
 
 I like oranges. :). 🍊🍊🍊🍊🍊🍊🍊🍊🍊
 🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊🍊
